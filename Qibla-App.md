@@ -1,6 +1,6 @@
 Privacy Policy
 
-This privacy policy applies to the Qibla App (hereby referred to as "Application") for mobile devices that was created by Tech Atlas LLC (hereby referred to as "Service Provider") as a Freemium service. This service is intended for use "AS IS".
+This privacy policy applies to the Qibla App (hereby referred to as "Application") for mobile devices that was created by Zenith Apps (hereby referred to as "Service Provider") as a Freemium service. This service is intended for use "AS IS".
 
 
 Information Collection and Use
