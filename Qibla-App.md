@@ -93,4 +93,4 @@ By using the Application, you are consenting to the processing of your informati
 
 Contact Us
 
-If you have any questions regarding privacy while using the Application, or have questions about the practices, please contact the Service Provider via email(techatlas.ny@gmail.com) at Privacy Policy
+If you have any questions regarding privacy while using the Application, or have questions about the practices, please contact the Service Provider via email(muh.awaisilyas786@gmail.com) at Privacy Policy
